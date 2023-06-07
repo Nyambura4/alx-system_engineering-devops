@@ -1,1 +1,1 @@
-File type 12
+Where are symbols and inhabit symbols
