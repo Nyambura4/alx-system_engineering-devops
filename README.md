@@ -1,2 +1,1 @@
-# alx-system_engineering-devops
-repo 2
+ second working directory script
