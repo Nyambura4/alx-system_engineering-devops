@@ -1,1 +1,1 @@
-Task 19. Magic file
+Task 0. Switch directory
