@@ -1,1 +1,1 @@
-File type school finally
+File type school

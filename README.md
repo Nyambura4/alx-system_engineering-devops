@@ -1,1 +1,1 @@
-Task 19.File type school
+Task 19. Magic file
