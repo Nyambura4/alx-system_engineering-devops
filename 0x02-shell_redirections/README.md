@@ -1,1 +1,1 @@
-Display 10 files
+Being unique is better than being perfect
