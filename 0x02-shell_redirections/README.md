@@ -1,1 +1,1 @@
-counting files and directories
+Display 10 files
