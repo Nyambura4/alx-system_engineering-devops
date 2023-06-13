@@ -1,1 +1,1 @@
-gifs with many words
+ A gif worth many words
