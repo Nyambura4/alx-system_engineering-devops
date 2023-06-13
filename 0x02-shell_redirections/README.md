@@ -1,1 +1,1 @@
-Letters only please
+Alphabets play
