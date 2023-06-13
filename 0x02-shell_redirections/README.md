@@ -1,2 +1,1 @@
-#!/bin/bash
-echo "Hello,world"
+Task 1.Shell redirections
