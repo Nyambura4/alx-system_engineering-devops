@@ -1,1 +1,1 @@
-gifs equals many words
+gifs with many words
