@@ -1,1 +1,1 @@
-What's next
+Hide this world
