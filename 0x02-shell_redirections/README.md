@@ -1,1 +1,1 @@
-Hide this world
+Letters only please
