@@ -1,1 +1,1 @@
-seven global variables
+every addition to knowledge
