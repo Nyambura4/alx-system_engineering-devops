@@ -1,1 +1,1 @@
-The path is beautiful
+Global variables
