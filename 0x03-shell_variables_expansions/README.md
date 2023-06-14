@@ -1,1 +1,1 @@
-odd eggs in the brood
+I am an instant star
