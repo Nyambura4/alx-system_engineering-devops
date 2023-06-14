@@ -1,1 +1,1 @@
-divide and rule
+Love is expotent breadth
