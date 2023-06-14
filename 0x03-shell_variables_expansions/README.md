@@ -1,1 +1,1 @@
-create local variable
+seven global variables
