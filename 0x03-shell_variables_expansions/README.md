@@ -1,1 +1,1 @@
-I am an instant star
+Stir up water
