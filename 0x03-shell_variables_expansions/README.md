@@ -1,1 +1,1 @@
-Love is expotent breadth
+There are two types of people
