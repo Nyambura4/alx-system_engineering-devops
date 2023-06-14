@@ -1,1 +1,1 @@
-every addition to knowledge
+divide and rule
